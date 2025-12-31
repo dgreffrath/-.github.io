@@ -1,1 +1,0 @@
-# daniel-greffrath.github.io
